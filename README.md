@@ -1,4 +1,4 @@
-## Ceydy Lazo.
+
 
 <img src="https://github.com/CeydyLazo/CeydyLazo/blob/e91ff57cf822bc6a689684296f54e782628002bb/Home%20Decoration%20Facebook%20Cover.png" alt="banner that says Ceydy Lazo - scientist, content creator and conservationist">
 
