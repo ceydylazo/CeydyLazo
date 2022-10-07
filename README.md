@@ -11,7 +11,7 @@ Publication:
 ## Find me on other platforms:
 - Scientific Publications <a href="https://belize.academia.edu/CeydyLazo">Academia</a>
 - Education Channel on <a href="https://www.youtube.com/channel/UC4aZiM0r8krHhBpZo4UhFng"> Youtube</a>
-- LinkedIn on <a href="https: //www.linkedin.com/in/ceydylazo/"> LinkedIn</a>
+- LinkedIn on <a href="https://www.linkedin.com/in/ceydylazo/"> LinkedIn</a>
 - Studygram on <a href="https: //www.instagram.com/in/studywithceydy/"> Instagram</a>
 
   The ahave GIE chowe what my DEADME looks like at the time of this
